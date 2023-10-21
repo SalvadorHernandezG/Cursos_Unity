@@ -7,3 +7,6 @@
 
 [02 - Video Tutorial Sonido y Efecto
 ](https://drive.google.com/file/d/12zgLAOtCsOnryGE7VWXK9cqZEypaELxW/view?ts=6529b981)
+
+[03 - Video Tutorial Mecanicas de Jugabilidad
+](https://drive.google.com/file/d/1vbpwJsdnNwJuryofMk2kfMYxLQTgTYRh/view?usp=sharing)
